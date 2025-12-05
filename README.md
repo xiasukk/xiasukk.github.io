@@ -1,4 +1,4 @@
-# 我们如何用每日大赛-MediaPro，将内容产出效率提升300%？
+# [我们如何用每日大赛-MediaPro，将内容产出效率提升300%？](https://mrdss.gitbook.io/mrdss-docs/)
 
 # [每日大赛-黑料爆料](https://heiliao.selfmediastudio.cc/)：https://heiliao.selfmediastudio.cc
 
